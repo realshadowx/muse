@@ -4,9 +4,10 @@ Hello folks, Amir here.
 
 Looking to create stunning websites and landing pages without the hassle of coding?
 
-[Muse.io](https://bit.ly/4bp3JAw) is an all-in-one platform that empowers designers, developers, and marketers to create visually appealing, highly functional websites with ease.
+[Muse.io](https://muse.io/?ref=shadow) is an all-in-one platform that empowers designers, developers, and marketers to create visually appealing, highly functional websites with ease.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdkoRmeXXHFHYkW3pXPSXUEcIRMJKmSlu0uFHiP49GIdfkhi6Guum_wdP8NE_l18HF4UsC2tP-Kpxfr5sWCza-uxpVLANpU2EG4O-mjaA9-7JAH-6CDpnAJQtFYEhNgjayk2C_7_A?key=mAND5FQrP6wXlYZq6xkzdsiw)](https://bit.ly/4bp3JAw)
+[![Discount button](https://github.com/user-attachments/assets/20776781-fad3-4af3-9d5e-123c30628bd8)](https://muse.io/?ref=shadow)
+
 
 ## Top Muse.io Coupon Codes
 
@@ -40,7 +41,7 @@ Check out these fantastic [Muse.io coupon codes](https://bit.ly/4bp3JAw) that ca
 * Expiry Date: Available until 29/12/2025.
 * How to Use the Code: Enter the code when purchasing the full feature bundle to receive 25% off.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdkoRmeXXHFHYkW3pXPSXUEcIRMJKmSlu0uFHiP49GIdfkhi6Guum_wdP8NE_l18HF4UsC2tP-Kpxfr5sWCza-uxpVLANpU2EG4O-mjaA9-7JAH-6CDpnAJQtFYEhNgjayk2C_7_A?key=mAND5FQrP6wXlYZq6xkzdsiw)](https://bit.ly/4bp3JAw)
+[![Discount button](https://github.com/user-attachments/assets/20776781-fad3-4af3-9d5e-123c30628bd8)](https://muse.io/?ref=shadow)
 
 ## How to Redeem Muse.io Coupon Codes?
 
@@ -58,7 +59,7 @@ When you’re ready to checkout, you’ll be prompted to enter a promo code. Typ
 4. Step 4: Confirm Your Discount
 After applying the code, check to see if the discount has been reflected in your total price. If everything looks good, complete the checkout process to finalize your purchase.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdkoRmeXXHFHYkW3pXPSXUEcIRMJKmSlu0uFHiP49GIdfkhi6Guum_wdP8NE_l18HF4UsC2tP-Kpxfr5sWCza-uxpVLANpU2EG4O-mjaA9-7JAH-6CDpnAJQtFYEhNgjayk2C_7_A?key=mAND5FQrP6wXlYZq6xkzdsiw)](https://bit.ly/4bp3JAw)
+[![Discount button](https://github.com/user-attachments/assets/20776781-fad3-4af3-9d5e-123c30628bd8)](https://muse.io/?ref=shadow)
 
 ## Pricing Information & How Much You Can Save
 
