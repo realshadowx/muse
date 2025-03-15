@@ -1,5 +1,7 @@
 # Muse.io Coupon Code & Discount 2025 - 57% Off 🔥
 
+Hello folks, Amir here.
+
 Looking to create stunning websites and landing pages without the hassle of coding?
 
 [Muse.io](https://bit.ly/4bp3JAw) is an all-in-one platform that empowers designers, developers, and marketers to create visually appealing, highly functional websites with ease.
